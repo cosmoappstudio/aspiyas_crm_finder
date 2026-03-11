@@ -1,0 +1,1 @@
+# Discovery modülü — marka keşfi
